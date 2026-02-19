@@ -1,5 +1,5 @@
 # 💫 About Me:
-2nd year student in IT engineering ... @ EFREI Paris 🔗 check my LinkedIn profile to learn more about me !
+2nd year student in IT engineering ... @ EFREI Paris 🔗 check my LinkedIn profile to learn more about me !!
 
 
 ## 🌐 Socials:
